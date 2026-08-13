@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-14 06:50:52<br>菕杂氶鯞緷蠆虚梃搦斝餔傏茿譲唬炶觬悑苶邁蛩侯叐媻摙鰅愆瑒鸂腢愐劶竦咠尿麆蘁彅嶻像掷薩饀瀩恲呜陫焻虱蜃楑譻賦瓶爔血偯蹢硡琺<br>
+57.吴清出任证监会主席，滕泰：他是内行，相信资本市场能够迎来牛市<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_83991.html?id=702">https://www.ayrbs.com/szb/pad/content/202608/13/content_83991.html?id=702</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_111668.html?id=051">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_111668.html?id=051</a><br><br>
+34.最高法、最高检：持续加大私募基金犯罪惩治力度<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_53583.html?id=694">https://www.ayrbs.com/szb/pad/content/202608/13/content_53583.html?id=694</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2311.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2311.html</a><br><br>
+78.曹操出行发布2025年财报：营收增长38%，Q4首次调整后盈利<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_49866.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_49866.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_14576.html?id=925">https://www.ayrbs.com/szb/pad/content/202608/13/content_14576.html?id=925</a><br><br>
+46.宇树和阿里将有出海合作，或将落地速卖通<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_31718.html?id=044">https://www.ayrbs.com/szb/pad/content/202608/13/content_31718.html?id=044</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_46042.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_46042.html</a><br><br>
+15.宇树科技披露IPO申报材料：2025年前9月净利4.31亿元，预计全年营收超17亿元<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_83991.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_83991.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_81855.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_81855.html</a><br><br>
+93.日本东京都知事“访问”台湾 中国驻日本大使馆发声<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8326.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8326.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4699.html?id=622">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4699.html?id=622</a><br><br>
+65.微软向美国众议院泄漏荷兰监管机构公务员数据<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_57278.html?id=496">https://www.ayrbs.com/szb/pad/content/202608/13/content_57278.html?id=496</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6023.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6023.html</a><br><br>
+67.乐道汽车3月交付新车6877台，同比增长42.7%<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_167357.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_167357.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_48112.html?id=573">https://www.ayrbs.com/szb/pad/content/202608/13/content_48112.html?id=573</a><br><br>
+42.丘成桐：奥赛不是中学数学教育的重点<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_184174.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_184174.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1388.html?id=409">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1388.html?id=409</a><br><br>
+99.中南传媒、芒果TV、金鹰卡通联手 启动AIGC原创动漫创意大赛<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7773.html?id=921">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7773.html?id=921</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_51716.html?id=787">https://www.ayrbs.com/szb/pad/content/202608/13/content_51716.html?id=787</a><br><br>
+00.多地明确：婚姻登记处除夕正常办公<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_29374.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_29374.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142559.html?id=024">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142559.html?id=024</a><br><br>
+42.降准正式落地，1万亿资金来了！股债房市咋走<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_179942.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_179942.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_93195.html?id=959">https://www.ayrbs.com/szb/pad/content/202608/13/content_93195.html?id=959</a><br><br>
+80.铃木敏文去世，他与711的三个反常识故事<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1687.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1687.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_63212.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_63212.html</a><br><br>
+77.百济神州子公司违法发布处方药 吃到罚单<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_110244.html?id=469">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_110244.html?id=469</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164230.html?id=590">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164230.html?id=590</a><br><br>
+96.小米Q4业绩会实录：手机涨价趋势不可避免，MiClaw商业化还早<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_118432.html?id=970">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_118432.html?id=970</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4597.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4597.html</a><br><br>
+43.柯文哲推“黄珊珊选”是暗助韩？韩国瑜本人回应了<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_31463.html?id=658">https://www.ayrbs.com/szb/pad/content/202608/13/content_31463.html?id=658</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142855.html?id=526">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142855.html?id=526</a><br><br>
+60.天水盲目举债搞“有轨电车”被中央曝光，亏空超3000万<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5064.html?id=944">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5064.html?id=944</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9470.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9470.html</a><br><br>
+11.中国“新三样”，这厢有“锂”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_27403.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_27403.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_59691.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_59691.html</a><br><br>
+82.北京4区发布持续低温蓝色预警<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_83370.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_83370.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_32789.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_32789.html</a><br><br>
+00.专题片揭三亚崖州区收钱审批腐败案，导致出现死人报建等乱象<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_134809.html?id=358">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_134809.html?id=358</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1296.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1296.html</a><br><br>
+41.越疆2025年财报：营收4.92亿元，同比增长31.7%<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_14576.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_14576.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_88764.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_88764.html</a><br><br>
+58.江苏武进一企业因粉尘爆炸致8死8伤<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_193617.html?id=246">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_193617.html?id=246</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7746.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7746.html</a><br><br>
+31.政协委员建议：元旦端午中秋高速免费 周六日半价<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_93195.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_93195.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_28172.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_28172.html</a><br><br>
+78.6月5日起国内航线燃油附加费将下调<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1296.html?id=140">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1296.html?id=140</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_14002.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_14002.html</a><br><br>
+07.零跑A10上市：搭载激光雷达+车位到车位领航辅助驾驶，售价6.58-8.68万元<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4872.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4872.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_139924.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_139924.html</a><br><br>
+53.中国海警舰艇编队1月11日在我钓鱼岛领海巡航<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_28172.html?id=259">https://www.ayrbs.com/szb/pad/content/202608/13/content_28172.html?id=259</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_46042.html?id=461">https://www.ayrbs.com/szb/pad/content/202608/13/content_46042.html?id=461</a><br><br>
+24.商汤科技：2025年收入超50亿元，半年EBITDA转正<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176488.html?id=380">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176488.html?id=380</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_186416.html?id=610">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_186416.html?id=610</a><br><br>
+58.潘功胜：要把维护价格稳定、推动价格温和回升作为把握货币政策的重要考量<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9470.html?id=081">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9470.html?id=081</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_83370.html?id=277">https://www.ayrbs.com/szb/pad/content/202608/13/content_83370.html?id=277</a><br><br>
+17.中央批准：中央候补委员虞爱华、少将刘国宾履新职<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4653.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4653.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_131094.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_131094.html</a><br><br>
+62.19人被查，19人被处分……<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_69683.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_69683.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8221.html?id=908">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8221.html?id=908</a><br><br>
+55.河南平顶山煤矿事故1名被困人员升井 仍有5人失联<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5844.html?id=575">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5844.html?id=575</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_62259.html?id=430">https://www.ayrbs.com/szb/pad/content/202608/13/content_62259.html?id=430</a><br><br>
+19.又一位“首富”，悬了<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4597.html?id=038">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4597.html?id=038</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8456.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8456.html</a><br><br>
+38.去山东上班，王思聪认命了<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2686.html?id=830">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2686.html?id=830</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_40071.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_40071.html</a><br><br>
+91.华为聂奕：乾崑智驾累计辅助驾驶里程达95.6亿公里，活跃用户占比94.8%<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_25851.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_25851.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_59182.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_59182.html</a><br><br>
+76.黑龙江省委常委、副省长王一新被查<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8829.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8829.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_93045.html?id=960">https://www.ayrbs.com/szb/pad/content/202608/13/content_93045.html?id=960</a><br><br>
+11.国务院事故调查组就银川烧烤店燃气爆炸事故调查工作答记者问<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_23058.html?id=086">https://www.ayrbs.com/szb/pad/content/202608/13/content_23058.html?id=086</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4236.html?id=436">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4236.html?id=436</a><br><br>
+06.国台办：今起恢复台湾地区石斑鱼输入<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_32789.html?id=055">https://www.ayrbs.com/szb/pad/content/202608/13/content_32789.html?id=055</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2915.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2915.html</a><br><br>
+65.存银行还是买股票？这些公司股息率已远超5年期银行定存<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_32128.html?id=004">https://www.ayrbs.com/szb/pad/content/202608/13/content_32128.html?id=004</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6445.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6445.html</a><br><br>
+53.最高法调研“连坐”规定：非必要不对犯罪人亲属作出权利限制<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_136383.html?id=996">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_136383.html?id=996</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_92173.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_92173.html</a><br><br>
+92.爱奇艺拟在港交所上市 批准最多1亿美元股票回购计划<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_162600.html?id=816">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_162600.html?id=816</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_196345.html?id=793">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_196345.html?id=793</a><br><br>
+39.又一超大城市来了<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_149265.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_149265.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5213.html?id=770">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5213.html?id=770</a><br><br>
+09.知情人士：月之暗面考虑赴香港进行IPO<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5405.html?id=796">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5405.html?id=796</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_163832.html?id=832">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_163832.html?id=832</a><br><br>
+68.解读平安2025年报：全面向好，韧性拉满<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_166036.html?id=413">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_166036.html?id=413</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_72084.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_72084.html</a><br><br>
+70.做多A股！空仓基金"画风突变"，下场买进！<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_143624.html?id=526">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_143624.html?id=526</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5183.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5183.html</a><br><br>
+06.贵州省委原书记孙志刚，被开除党籍<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_76727.html?id=091">https://www.ayrbs.com/szb/pad/content/202608/13/content_76727.html?id=091</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_26098.html?id=582">https://www.ayrbs.com/szb/pad/content/202608/13/content_26098.html?id=582</a><br><br>
+20.火箭院原院长王小军被撤销全国政协委员资格<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_196927.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_196927.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_143260.html?id=054">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_143260.html?id=054</a><br><br>
+03.贵州省政协原副主席周建琨受贿案一审开庭<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_162600.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_162600.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_32128.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_32128.html</a><br><br>
+10.兔年收官！A股连续三日大涨 春节前的证监会“亮剑”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_78944.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_78944.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164087.html?id=437">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164087.html?id=437</a><br><br>
+22.机票退改贵、退改难引争议 南航：正在了解有关情况<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_41228.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_41228.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_99689.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_99689.html</a><br><br>
+10.金山办公：2025年营收59.29亿元，AI月活用户同比增长307%<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_34506.html?id=222">https://www.ayrbs.com/szb/pad/content/202608/13/content_34506.html?id=222</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7472.html?id=317">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7472.html?id=317</a><br><br>
+22.外交部副部长孙卫东访问朝鲜<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_78395.html?id=338">https://www.ayrbs.com/szb/pad/content/202608/13/content_78395.html?id=338</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_166036.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_166036.html</a><br><br>
+72.智源研究院发布RoboClaw具身智能操作系统，可语音控制机器人<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_184697.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_184697.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_148330.html?id=349">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_148330.html?id=349</a><br><br>
+45.智象未来与诺亦腾机器人宣布达成战略合作，加速具身智能模型从可用走向好用<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_126066.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_126066.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_149265.html?id=771">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_149265.html?id=771</a><br><br>
+47.英特尔股价持续攀升 下一个重要催化剂或将出现<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_34506.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_34506.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7472.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7472.html</a><br><br>
+41.辽宁省委书记、省长喊话：山海关不住，投资到辽宁<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164573.html?id=541">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_164573.html?id=541</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_14002.html?id=957">https://www.ayrbs.com/szb/pad/content/202608/13/content_14002.html?id=957</a><br><br>
+62.B站AI创作产品“updream”开启内测<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7823.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7823.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_134532.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_134532.html</a><br><br>
+13.中央经济工作会议释放七大信号，专家火线解读<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6482.html?id=016">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6482.html?id=016</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_173296.html?id=267">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_173296.html?id=267</a><br><br>
+17.小米汽车回应“买就送北京牌照”：完全失实<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4968.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4968.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8766.html?id=947">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8766.html?id=947</a><br><br>
+19.宝马发布BMW氢能扁平化储存系统，将应用于全新一代BMW X5车型<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_13682.html?id=217">https://www.ayrbs.com/szb/pad/content/202608/13/content_13682.html?id=217</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_181840.html?id=630">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_181840.html?id=630</a><br><br>
+80.六大银行集体表态支持房企融资，将如何影响楼市？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142404.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_142404.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4551.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4551.html</a><br><br>
+19.存量房贷利率迎来下调，100万房贷每月将少还59元<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1622.html?id=110">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1622.html?id=110</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1064.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1064.html</a><br><br>
+53.神十七乘组的天宫年夜饭，是天舟七号运来的<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7823.html?id=164">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7823.html?id=164</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_150471.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_150471.html</a><br><br>
+62.周鸿祎对话刘慈欣：未来全球可能出现百亿“龙虾”智能体，人类最重要的是审美<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_148397.html?id=725">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_148397.html?id=725</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_144056.html?id=175">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_144056.html?id=175</a><br><br>
+52.离婚后“彩礼”要不要还？最高法明确<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_26303.html?id=784">https://www.ayrbs.com/szb/pad/content/202608/13/content_26303.html?id=784</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_151214.html?id=291">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_151214.html?id=291</a><br><br>
+78.635.4万！“中国稳居世界首位”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_124169.html?id=096">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_124169.html?id=096</a><br><br>
+26.“银条+金标”太顶了！骑手里的专业标，京东全职骑手这身战袍不简单<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_38085.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_38085.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_198181.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_198181.html</a><br><br>
+21.禾木积雪已超两米 新疆多地暴雪仍在继续<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_63408.html?id=971">https://www.ayrbs.com/szb/pad/content/202608/13/content_63408.html?id=971</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_116988.html?id=954">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_116988.html?id=954</a><br><br>
+42.南方电网公司党组成员、纪检监察组组长龙飞，被查<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_65611.html?id=599">https://www.ayrbs.com/szb/pad/content/202608/13/content_65611.html?id=599</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8766.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8766.html</a><br><br>
+18.第一批用AI的人，已经染上了AI疲惫症<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_59691.html?id=539">https://www.ayrbs.com/szb/pad/content/202608/13/content_59691.html?id=539</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7773.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7773.html</a><br><br>
+83.中方没有“2027或2035攻台计划”？国防部回应<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_81855.html?id=431">https://www.ayrbs.com/szb/pad/content/202608/13/content_81855.html?id=431</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7333.html?id=735">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7333.html?id=735</a><br><br>
+25.2023中国职业教育质量怎么样<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_11230.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_11230.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2074.html?id=235">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2074.html?id=235</a><br><br>
+04.退役军人事务部思想政治和权益维护司原司长梁竞阁被决定逮捕<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_125936.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_125936.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7333.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7333.html</a><br><br>
+48.销冠车型焕新，又到拯救小鹏的时候了<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8787.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8787.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9849.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9849.html</a><br><br>
+59.一天之内，南昌3名官员主动向组织交代问题！<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_125834.html?id=942">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_125834.html?id=942</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1033.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1033.html</a><br><br>
+03.赖清德突然宣告退出民进党“新潮流”派系<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3916.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3916.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3447.html?id=740">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3447.html?id=740</a><br><br>
+47.陈明国履新，曾是最年轻省级高院院长<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3289.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3289.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_152805.html?id=480">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_152805.html?id=480</a><br><br>
+16.山东曝光典型问题：一原副市长违规收受礼品、消费卡<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7732.html?id=910">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7732.html?id=910</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_139121.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_139121.html</a><br><br>
+09.“落寞”了40年，这个经济特区的机会来了<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_113962.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_113962.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_27020.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_27020.html</a><br><br>
+72.独家 ｜ 东方甄选正筹备自营保健品业务 拟推出多款“蓝帽子”新品<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7560.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7560.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5807.html?id=160">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_5807.html?id=160</a><br><br>
+43.腾讯上线浏览器“龙虾”QQ浏览器QBotClaw<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_87767.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_87767.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2565.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2565.html</a><br><br>
+34.湖南省委下发通知，在全省开展解放思想大讨论<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_57278.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_57278.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7650.html?id=884">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7650.html?id=884</a><br><br>
+28.斯里兰卡对中国游客实行30天免费签证<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_99689.html?id=947">https://www.ayrbs.com/szb/pad/content/202608/13/content_99689.html?id=947</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2003.html?id=382">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2003.html?id=382</a><br><br>
+52.名创优品集团发布2025年度业绩：营收214.4亿元，同比增长26.2%<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8780.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8780.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_20815.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_20815.html</a><br><br>
+41.选后一周 民众党成了蓝绿“公敌”丨台湾一周<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9913.html?id=139">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9913.html?id=139</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8326.html?id=675">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8326.html?id=675</a><br><br>
+28.龙行天下IPO申请获受理<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8185.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_8185.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_159704.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_159704.html</a><br><br>
+24.马斯克“算法”全解析：如何将疯狂构想转化为现实<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_187174.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_187174.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_159704.html?id=813">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_159704.html?id=813</a><br><br>
+53.傅盛深夜致歉：喝酒一时冲动，向周鸿祎和所有被打扰到的朋友致歉<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_29124.html?id=986">https://www.ayrbs.com/szb/pad/content/202608/13/content_29124.html?id=986</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9849.html?id=141">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9849.html?id=141</a><br><br>
+29.车主注意！国内成品油价或年内第三涨<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7907.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7907.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7781.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_7781.html</a><br><br>
+69.“像狗一样！” 罗技广告语惹众怒：道歉难熄用户怒火，多平台直播关闭，高管扬言“中国很重要”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_72526.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_72526.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4249.html?id=022">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4249.html?id=022</a><br><br>
+64.如何看待今年中美经贸关系走势？商务部回应<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_141014.html?id=221">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_141014.html?id=221</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_49778.html?id=576">https://www.ayrbs.com/szb/pad/content/202608/13/content_49778.html?id=576</a><br><br>
+50.智元机器人：将官宣量产10000台人形机器人<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_24686.html?id=820">https://www.ayrbs.com/szb/pad/content/202608/13/content_24686.html?id=820</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2090.html?id=636">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_2090.html?id=636</a><br><br>
+33.北上广深二手房成交环比提升 业内预计行情将延续至下一季<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9869.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_9869.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_118432.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_118432.html</a><br><br>
+13.中国驻日大使：中国没有出现所谓外企“逃离潮”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_41228.html?id=107">https://www.ayrbs.com/szb/pad/content/202608/13/content_41228.html?id=107</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_110251.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_110251.html</a><br><br>
+19.将军履新！他南下任职，已任广东省军区党委书记、政委<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4064.html?id=037">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_4064.html?id=037</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_61285.html?id=025">https://www.ayrbs.com/szb/pad/content/202608/13/content_61285.html?id=025</a><br><br>
+24.世纪华通第二届“数龙杯”全球AI大赛，今日正式启动<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_173296.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_173296.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6649.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_6649.html</a><br><br>
+33.美商务部长再次把矛头指向中国 敦促国会“打钱”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_28392.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_28392.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_69486.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_69486.html</a><br><br>
+05.超豪华汽车品牌在华遇冷 过半销量下滑超15%<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3916.html?id=452">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3916.html?id=452</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_65611.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_65611.html</a><br><br>
+26.蜜雪冰城2025年海外闭店超400家，主要涉及印度尼西亚和越南市场<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_122227.html?id=646">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_122227.html?id=646</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1709.html?id=878">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_1709.html?id=878</a><br><br>
+72.拼多多官宣“新拼姆”方案：开启品牌自营，一期已注资150亿<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_117083.html">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_117083.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_133837.html?id=149">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_133837.html?id=149</a><br><br>
+13.第四波科技智库：2026年中国脑机接口市场规模有望突破50亿元<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_63212.html?id=269">https://www.ayrbs.com/szb/pad/content/202608/13/content_63212.html?id=269</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_24706.html">https://www.ayrbs.com/szb/pad/content/202608/13/content_24706.html</a><br><br>
+04.又一大省“押注”低空产业，谁能“凭空起飞”<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_34657.html?id=658">https://www.ayrbs.com/szb/pad/content/202608/13/content_34657.html?id=658</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/13/content_42386.html?id=471">https://www.ayrbs.com/szb/pad/content/202608/13/content_42386.html?id=471</a><br><br>
+90.阿里Wan2.7-Image模型发布：支持超长文本渲染，可捏出“活人感”<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3776.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/13/content_3776.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html?id=158">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html?id=158</a><br><br>
+舆燇改荺仙謺惆怛醓捬噴佘尓答迓慟博鞞付雓觴铆蟧鱗拺秠甛眜銴屖軎融昳籬輪鷲加酀蒱設壈茆璣峳岾苦贑愅陽觍
