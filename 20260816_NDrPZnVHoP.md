@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-16 13:48:01<br>吞嫑測吺曟仂蛈悆濱库梮鮍篼箸棬葬蕷勞害崤帿撉矘灌樟罕羚鶫褳妎屢斜趜猀龢媳擭襲白躨虃仝乸纄從輶醛廲六芭畓见鰅灀捱钁娄樐軰愳<br>
+21.2024年新闻发言人名单有何变化？发布台“老面孔”有新动态<a href="https://szb.xzrbw.com/app_epaper/2026-08/11/content_76951020.html">https://szb.xzrbw.com/app_epaper/2026-08/11/content_76951020.html</a><br><br>
+<a href="http://www.cdyee.com/news/content/2026-07/28/content_26357.html">http://www.cdyee.com/news/content/2026-07/28/content_26357.html</a><br><br>
+32.月薪2万，我去香港当空乘<a href="https://gs.huatu.com/gkzwb/2023/renshu/920780.html">https://gs.huatu.com/gkzwb/2023/renshu/920780.html</a><br><br>
+<a href="https://szb.xzrbw.com/app_epaper/2026-08/12/content_29750791.html">https://szb.xzrbw.com/app_epaper/2026-08/12/content_29750791.html</a><br><br>
+29.我国量子网络研究取得世界突破，首次实现量子网络节点无串扰<a href="https://www.bjsyqw.com/jiaoyu/609848.shtml">https://www.bjsyqw.com/jiaoyu/609848.shtml</a><br><br>
+<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/ogyuwhalazt3uw9u12xape8jf63xau3j7b1f38omj0h46.pdf">http://ndz.xdkb.net/xdkb/pad/column/202605/21/ogyuwhalazt3uw9u12xape8jf63xau3j7b1f38omj0h46.pdf</a><br><br>
+63.台湾台南人许勇铁，履新兰州<a href="https://xyrb.hj.cn/pc/con/202608/12/content_92686.html">https://xyrb.hj.cn/pc/con/202608/12/content_92686.html</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/752455.shtml">https://www.bjsyqw.com/jiaoyu/752455.shtml</a><br><br>
+41.多趟高铁因大雪停车：有人花两千元改签机票，有人耽搁10多个小时<a href="http://www.cdyee.com/news/content/2026-07/27/content_22536.html?id=028">http://www.cdyee.com/news/content/2026-07/27/content_22536.html?id=028</a><br><br>
+<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/5elo9xvvya502ofoldigtm82ki5enze4yd2zo9yaszdoz.pdf">http://ndz.xdkb.net/xdkb/pad/column/202605/21/5elo9xvvya502ofoldigtm82ki5enze4yd2zo9yaszdoz.pdf</a><br><br>
+24.三大产业向好带动中国11月经济回升<a href="http://www.cdyee.com/news/content/2026-07/28/content_87477.html?id=149">http://www.cdyee.com/news/content/2026-07/28/content_87477.html?id=149</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/06/content_91902.html">https://www.ayrbs.com/szb/pad/content/202608/06/content_91902.html</a><br><br>
+42.已调离江西的中央候补委员吴浩，赴中组部任职<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/x4ec5jbtss4ebi0lutj2a552wn213pvzc46acoh728h8p.pdf">http://ndz.xdkb.net/xdkb/pad/column/202605/21/x4ec5jbtss4ebi0lutj2a552wn213pvzc46acoh728h8p.pdf</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/08/content_61520.html">https://www.ayrbs.com/szb/pad/content/202608/08/content_61520.html</a><br><br>
+34.大年初三，市委书记上门送慰问金<a href="http://www.why.com.cn/epublish/qnb/html/2026-07/14/content_118_20730.htm">http://www.why.com.cn/epublish/qnb/html/2026-07/14/content_118_20730.htm</a><br><br>
+<a href="http://www.cdyee.com/news/content/2026-07/27/content_25577.html?id=808">http://www.cdyee.com/news/content/2026-07/27/content_25577.html?id=808</a><br><br>
+36.六大银行集体表态支持房企融资，将如何影响楼市？<a href="http://www.why.com.cn/wx/article/2026/07/15/17849564025586886665.html?id=337">http://www.why.com.cn/wx/article/2026/07/15/17849564025586886665.html?id=337</a><br><br>
+<a href="http://www.bsyjrb.com/content/2026-07/03/content_1709393.htm?id=310">http://www.bsyjrb.com/content/2026-07/03/content_1709393.htm?id=310</a><br><br>
+18.部分基层临聘人员财政供养压力大，何解？<a href="http://www.zgdazxw.com.cn/m/2026-06/22/content_1892534.html">http://www.zgdazxw.com.cn/m/2026-06/22/content_1892534.html</a><br><br>
+<a href="http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/27/content_73623.html?id=325">http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/27/content_73623.html?id=325</a><br><br>
+58.互联网史上最大补贴战：一年少赚1700亿，三大外卖平台各烧了多少钱？<a href="http://www.zgdazxw.com.cn/m/2026-06/11/content_7264350.html">http://www.zgdazxw.com.cn/m/2026-06/11/content_7264350.html</a><br><br>
+<a href="http://www.zgdazxw.com.cn/m/2026-06/17/content_4426755.html">http://www.zgdazxw.com.cn/m/2026-06/17/content_4426755.html</a><br><br>
+39.泉州市长回应“2·14”恶性撞船事件：极其愤慨<a href="https://news.bjsyqw.com/2026/0807/3913451.shtml?id=662">https://news.bjsyqw.com/2026/0807/3913451.shtml?id=662</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/12/content_3336941.html">https://paper.ycnews.cn/rb/pc/content/202608/12/content_3336941.html</a><br><br>
+11.呼和浩特第一监狱2名服刑人员袭击狱警，被数罪并罚<a href="https://xywb.hj.cn/pad/con/202608/01/content_01915.html?id=005">https://xywb.hj.cn/pad/con/202608/01/content_01915.html?id=005</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202606/24/content_1714410.html?id=945">http://dz.xdkb.net/xdkb/pc/content/202606/24/content_1714410.html?id=945</a><br><br>
+42.北京优化社保费缴纳流程，明年起不用多部门间“来回跑”<a href="http://news.bsyjrb.cn/content/2026-06/11/content_1730850.htm">http://news.bsyjrb.cn/content/2026-06/11/content_1730850.htm</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/17/content_1738471.htm?id=221">http://news.bsyjrb.cn/content/2026-06/17/content_1738471.htm?id=221</a><br><br>
+78.央行行长：将于2月5日下调存款准备金率0.5个百分点<a href="http://www.zgdazxw.com.cn/m/2026-06/17/content_4822382.html">http://www.zgdazxw.com.cn/m/2026-06/17/content_4822382.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/28/content_83289.html?id=280">http://www.zzrbw.com/zzrbPaper/pad/con/202607/28/content_83289.html?id=280</a><br><br>
+75.经两轮角逐 中国国民党民代江启臣当选台“立法院副院长”<a href="https://cq.huatu.com/gkzwb/2020/buwei2015/5028_3_132.html">https://cq.huatu.com/gkzwb/2020/buwei2015/5028_3_132.html</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/977437.shtml?id=531">https://www.bjsyqw.com/jiaoyu/977437.shtml?id=531</a><br><br>
+95.证监会：鼓励上市公司增加现金分红频次<a href="https://www.ayrbs.com/szb/pad/content/202604/16/449887.html?id=207">https://www.ayrbs.com/szb/pad/content/202604/16/449887.html?id=207</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202605/21/mx8vu3n9ia0sjii1gq5l6z4x8c7funbsbwkdvpilv14rk.pdf?id=966">http://dz.xdkb.net/xdkb/pc/content/202605/21/mx8vu3n9ia0sjii1gq5l6z4x8c7funbsbwkdvpilv14rk.pdf?id=966</a><br><br>
+42.李家超就新一份财政预算案发表声明：对香港的发展充满信心<a href="https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170713808_1.html">https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170713808_1.html</a><br><br>
+<a href="https://ln.huatu.com/syzwb/2024/1/zhiwei/165299823.html?id=763">https://ln.huatu.com/syzwb/2024/1/zhiwei/165299823.html?id=763</a><br><br>
+42.湖北检察机关依法对杜兆才涉嫌受贿案提起公诉<a href="https://news.bjsyqw.com/2026/0808/2631411.shtml?id=368">https://news.bjsyqw.com/2026/0808/2631411.shtml?id=368</a><br><br>
+<a href="https://szb.xzrbw.com/app_epaper/2026-08/12/content_36669251.html?id=330">https://szb.xzrbw.com/app_epaper/2026-08/12/content_36669251.html?id=330</a><br><br>
+58.今日视点：物联网产业步入发展新周期<a href="http://news.bsyjrb.cn/content/2026-06/13/content_1704138.htm?id=267">http://news.bsyjrb.cn/content/2026-06/13/content_1704138.htm?id=267</a><br><br>
+<a href="https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500526859.html?id=947">https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500526859.html?id=947</a><br><br>
+54.156亿元全收走！经过8年拉锯 中国国民党党产终成民进党当局资产<a href="https://xywb.hj.cn/pad/con/202608/01/content_95976.html?id=935">https://xywb.hj.cn/pad/con/202608/01/content_95976.html?id=935</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_2196.html?id=053">http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_2196.html?id=053</a><br><br>
+86.山姆否认猪肉“冻化鲜” ：系统信息同步与校验失误 不存在“数月前屠宰”的情况<a href="https://www.bjsyqw.com/jiaoyu/025009.shtml">https://www.bjsyqw.com/jiaoyu/025009.shtml</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/07/content_39180.html">https://www.ayrbs.com/szb/pad/content/202608/07/content_39180.html</a><br><br>
+40.医药反腐深入医保领域，多名省级医保官员相继被查<a href="http://szb.chinalxnet.com/pad/cont/202607/04/content_1717155.html">http://szb.chinalxnet.com/pad/cont/202607/04/content_1717155.html</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/12/content_1708646.htm?id=052">http://news.bsyjrb.cn/content/2026-06/12/content_1708646.htm?id=052</a><br><br>
+43.外交部：敦促美方停止歧视打压中国企业<a href="http://www.zgdazxw.com.cn/m/2026-06/13/content_7875833.html">http://www.zgdazxw.com.cn/m/2026-06/13/content_7875833.html</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202608/03/content_10823.html">https://xyrb.hj.cn/pc/con/202608/03/content_10823.html</a><br><br>
+77.提前过三九！超20省份冷如钻冰箱，全国冷冻地图出炉<a href="https://www.ayrbs.com/szb/pad/content/202608/12/content_10730.html?id=435">https://www.ayrbs.com/szb/pad/content/202608/12/content_10730.html?id=435</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202604/16/407242.html?id=799">https://www.ayrbs.com/szb/pad/content/202604/16/407242.html?id=799</a><br><br>
+10.中国大模型调用量登顶 如何重塑全球AI产业格局？<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_4698.html?id=373">http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_4698.html?id=373</a><br><br>
+<a href="http://www.zgdazxw.com.cn/m/2026-06/15/content_6566595.html?id=437">http://www.zgdazxw.com.cn/m/2026-06/15/content_6566595.html?id=437</a><br><br>
+83.中国商业航天重大突破 力箭二号首飞成功 成本直追SpaceX<a href="http://www.zgdazxw.com.cn/2026-05/21/5diyy235j5bqazozy5gund16asm1mb0xgptsefigpdxwo.pdf?id=416">http://www.zgdazxw.com.cn/2026-05/21/5diyy235j5bqazozy5gund16asm1mb0xgptsefigpdxwo.pdf?id=416</a><br><br>
+<a href="http://www.zgdazxw.com.cn/m/2026-06/13/content_8295453.html">http://www.zgdazxw.com.cn/m/2026-06/13/content_8295453.html</a><br><br>
+38.菲参议院通过“海洋区域法案” 外交部：坚决反对！已向菲方提出严正交涉<a href="http://news.bsyjrb.cn/content/2026-06/14/content_1728355.htm">http://news.bsyjrb.cn/content/2026-06/14/content_1728355.htm</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/30/content_56362.html">http://www.zzrbw.com/zzrbPaper/pad/con/202607/30/content_56362.html</a><br><br>
+37.LPR报价行扩至20家，新一期LPR报价会否下调？<a href="http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/28/content_13854.html">http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/28/content_13854.html</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0806/9078899.shtml">https://news.bjsyqw.com/2026/0806/9078899.shtml</a><br><br>
+95.山东菏泽废旧厂房火灾明火已扑灭 一人受伤<a href="http://dz.xdkb.net/xdkb/pc/content/202605/21/efneeiiku7h9vx7r06svkwwnbdu3xhhhsw5cyga8ch6kd.pdf">http://dz.xdkb.net/xdkb/pc/content/202605/21/efneeiiku7h9vx7r06svkwwnbdu3xhhhsw5cyga8ch6kd.pdf</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0808/0548540.shtml">https://news.bjsyqw.com/2026/0808/0548540.shtml</a><br><br>
+73.中国商业航天进入大运力时代<a href="https://www.bjsyqw.com/jiaoyu/213084.shtml">https://www.bjsyqw.com/jiaoyu/213084.shtml</a><br><br>
+<a href="https://qzrb.gxqzxw.com/pc/content/202605/18/content_41393028.html">https://qzrb.gxqzxw.com/pc/content/202605/18/content_41393028.html</a><br><br>
+28.多名省级消防救援总队政委跨省联动调整<a href="https://www.ayrbs.com/szb/pad/content/202608/08/content_45367.html?id=750">https://www.ayrbs.com/szb/pad/content/202608/08/content_45367.html?id=750</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202604/16/429221.html">https://www.ayrbs.com/szb/pad/content/202604/16/429221.html</a><br><br>
+13.科兴新冠疫苗停产，新冠疫苗要退出历史舞台？中国科学院院士回应<a href="https://gs.huatu.com/gkzwb/2023/renshu/612130.html?id=925">https://gs.huatu.com/gkzwb/2023/renshu/612130.html?id=925</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/18/content_1749676.htm?id=736">http://news.bsyjrb.cn/content/2026-06/18/content_1749676.htm?id=736</a><br><br>
+48.美国政府计划调查在中国制造的电动车，外交部回应<a href="https://bjrb.bjsyqw.com/html/2026-08/08/content_33248_74222534.htm?id=762">https://bjrb.bjsyqw.com/html/2026-08/08/content_33248_74222534.htm?id=762</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202604/16/469136.html?id=123">https://www.ayrbs.com/szb/pad/content/202604/16/469136.html?id=123</a><br><br>
+67.车主注意！国内油价或压线下调<a href="http://dz.xdkb.net/xdkb/pc/content/202608/06/content_173576.html">http://dz.xdkb.net/xdkb/pc/content/202608/06/content_173576.html</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0813/1202144.shtml">https://news.bjsyqw.com/2026/0813/1202144.shtml</a><br><br>
+57.国家发改委：中国经济发展“稳”“进”“好”的特征更显突出<a href="http://www.bsyjrb.com/content/2026-07/03/content_1704089.htm">http://www.bsyjrb.com/content/2026-07/03/content_1704089.htm</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0807/9607163.shtml">https://news.bjsyqw.com/2026/0807/9607163.shtml</a><br><br>
+26.宏和科技刚完成10亿定增又拟赴港募资 PE高达357倍透支未来数年增长预期？实控人带着高管落袋为安9000万<a href="http://dz.xdkb.net/xdkb/pc/content/202606/13/content_1759313.html?id=817">http://dz.xdkb.net/xdkb/pc/content/202606/13/content_1759313.html?id=817</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/341954.shtml?id=781">https://www.bjsyqw.com/jiaoyu/341954.shtml?id=781</a><br><br>
+00.2024年1月1日起，我国调整部分商品进出口关税<a href="http://szb.chinalxnet.com/pad/cont/202606/17/content_1709326.html">http://szb.chinalxnet.com/pad/cont/202606/17/content_1709326.html</a><br><br>
+<a href="http://www.zgdazxw.com.cn/2026-05/21/3juub9n6ibsse2ckp90e5oojkip0kc3g5bqshrjb9ncos.pdf?id=706">http://www.zgdazxw.com.cn/2026-05/21/3juub9n6ibsse2ckp90e5oojkip0kc3g5bqshrjb9ncos.pdf?id=706</a><br><br>
+37.刚免职的鲍炳章，官宣被查<a href="https://www.ayrbs.com/szb/pad/content/202608/14/content_45958.html">https://www.ayrbs.com/szb/pad/content/202608/14/content_45958.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/14/content_189288.html">http://dz.xdkb.net/xdkb/pc/content/202608/14/content_189288.html</a><br><br>
+20.专题片揭三亚崖州区收钱审批腐败案，导致出现死人报建等乱象<a href="http://epaper.632news.com/zzwb/html/2026-08/01/content_14002.htm">http://epaper.632news.com/zzwb/html/2026-08/01/content_14002.htm</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/12/content_9634.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/12/content_9634.html</a><br><br>
+71.中国产C919和ARJ21飞机 首次亮相新加坡航展<a href="https://www.ayrbs.com/szb/pad/content/202604/16/446333.html?id=724">https://www.ayrbs.com/szb/pad/content/202604/16/446333.html?id=724</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/12/content_79112.html">https://www.ayrbs.com/szb/pad/content/202608/12/content_79112.html</a><br><br>
+29.普京：俄中合作达到前所未有的高度<a href="http://szb.chinalxnet.com/pad/cont/202606/13/content_1712015.html?id=498">http://szb.chinalxnet.com/pad/cont/202606/13/content_1712015.html?id=498</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/12/content_73243.html">https://xywb.hj.cn/pad/con/202608/12/content_73243.html</a><br><br>
+96.省委书记本月7次暗访，3次为同一问题，有重要背景<a href="https://www.ayrbs.com/szb/pad/content/202604/16/452513.html?id=120">https://www.ayrbs.com/szb/pad/content/202604/16/452513.html?id=120</a><br><br>
+<a href="https://www.fnxnews.cn/website/669650.html?id=765">https://www.fnxnews.cn/website/669650.html?id=765</a><br><br>
+71.爱奇艺发布“纳逗Pro” 全国首个专业影视制作智能体上线<a href="https://news.bjsyqw.com/2026/0813/7453601.shtml">https://news.bjsyqw.com/2026/0813/7453601.shtml</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/12/content_131213.html?id=912">http://dz.xdkb.net/xdkb/pc/content/202608/12/content_131213.html?id=912</a><br><br>
+50.金山办公：2025年营收59.29亿元，AI月活用户同比增长307%<a href="https://xywb.hj.cn/pad/con/202608/03/content_96930.html?id=949">https://xywb.hj.cn/pad/con/202608/03/content_96930.html?id=949</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202608/12/content_24281.html">https://xyrb.hj.cn/pc/con/202608/12/content_24281.html</a><br><br>
+58.中国工商银行原纪委书记刘立宪被决定逮捕<a href="https://news.bjsyqw.com/2026/0810/4517127.shtml?id=250">https://news.bjsyqw.com/2026/0810/4517127.shtml?id=250</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/10/content_0443186.html">https://paper.ycnews.cn/rb/pc/content/202608/10/content_0443186.html</a><br><br>
+06.多地景区门票约满售罄，呼吁分流错峰出行<a href="https://bjrb.bjsyqw.com/html/2026-08/12/content_26099_83169653.htm">https://bjrb.bjsyqw.com/html/2026-08/12/content_26099_83169653.htm</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0812/8543405.shtml">https://news.bjsyqw.com/2026/0812/8543405.shtml</a><br><br>
+65.北京新政落地探访：有新盘当晚成交七八套房，周末售楼处热闹不已<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/vpky2fjruefxy07nq414vz46ks269q4hzkde73fn8qzvb.pdf?id=828">http://ndz.xdkb.net/xdkb/pad/column/202605/21/vpky2fjruefxy07nq414vz46ks269q4hzkde73fn8qzvb.pdf?id=828</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/066109.shtml">https://www.bjsyqw.com/jiaoyu/066109.shtml</a><br><br>
+99.我国所有省份均已出台基本养老服务实施方案和清单<a href="https://www.ayrbs.com/szb/pad/content/202604/16/content_1005563.html?id=688">https://www.ayrbs.com/szb/pad/content/202604/16/content_1005563.html?id=688</a><br><br>
+<a href="https://www.fnxnews.cn/website/245279.html">https://www.fnxnews.cn/website/245279.html</a><br><br>
+80.浙江省教育厅厅长毛宏芳逝世，享年58岁<a href="https://paper.ycnews.cn/rb/pc/content/202608/12/content_2352090.html">https://paper.ycnews.cn/rb/pc/content/202608/12/content_2352090.html</a><br><br>
+<a href="https://www.huatu.com/2021/0803/2735340.html">https://www.huatu.com/2021/0803/2735340.html</a><br><br>
+89.日本人口五年减少逾三百万<a href="http://www.zgdazxw.com.cn/m/2026-06/17/content_3784560.html">http://www.zgdazxw.com.cn/m/2026-06/17/content_3784560.html</a><br><br>
+<a href="http://www.cdyee.com/news/content/2026-07/27/content_58803.html?id=318">http://www.cdyee.com/news/content/2026-07/27/content_58803.html?id=318</a><br><br>
+80.2026人形机器人半程马拉松新增“巴图鲁”挑战赛<a href="https://www.ayrbs.com/szb/pad/content/202608/07/content_75808.html?id=428">https://www.ayrbs.com/szb/pad/content/202608/07/content_75808.html?id=428</a><br><br>
+<a href="https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170972833_1.html?id=355">https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170972833_1.html?id=355</a><br><br>
+58.陕西一社区书记辱骂群众被停职<a href="http://www.zgdazxw.com.cn/m/2026-08/01/content_172972.html?id=647">http://www.zgdazxw.com.cn/m/2026-08/01/content_172972.html?id=647</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/929317.shtml">https://www.bjsyqw.com/jiaoyu/929317.shtml</a><br><br>
+30.年夜饭也逃不过预制菜？<a href="http://dz.xdkb.net/xdkb/pc/content/202605/21/mw0v628zd5g0wskk5hjpja22056sdrlj0mt6s12kqhtze.pdf">http://dz.xdkb.net/xdkb/pc/content/202605/21/mw0v628zd5g0wskk5hjpja22056sdrlj0mt6s12kqhtze.pdf</a><br><br>
+<a href="https://www.bjsyqw.com/jiaoyu/653573.shtml?id=524">https://www.bjsyqw.com/jiaoyu/653573.shtml?id=524</a><br><br>
+32.原理想智驾骨干加盟无界动力，担任联合创始人兼联席CTO<a href="http://epaper.632news.com/zzwb/html/2026-08/03/content_38905.htm?id=134">http://epaper.632news.com/zzwb/html/2026-08/03/content_38905.htm?id=134</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202608/11/content_14507.html">https://xyrb.hj.cn/pc/con/202608/11/content_14507.html</a><br><br>
+04.同居一年后分手男方要求女方返还20万元彩礼，法院：部分返还<a href="http://szb.chinalxnet.com/pad/cont/202608/10/content_132384.html">http://szb.chinalxnet.com/pad/cont/202608/10/content_132384.html</a><br><br>
+<a href="https://www.hj.cn/content/2026-07/31/content_20265716.html?id=599">https://www.hj.cn/content/2026-07/31/content_20265716.html?id=599</a><br><br>
+20.廉洁底线失守，贵州旅投集团原工会主席吴静被决定逮捕！<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/s9087fgpaygkgv2c14dk5x8m3odj3vncnxuvsyy6r2efo.pdf?id=212">http://ndz.xdkb.net/xdkb/pad/column/202605/21/s9087fgpaygkgv2c14dk5x8m3odj3vncnxuvsyy6r2efo.pdf?id=212</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202606/20/content_1799305.html">http://dz.xdkb.net/xdkb/pc/content/202606/20/content_1799305.html</a><br><br>
+26.OpenAI的“特洛伊木马” 叩击谷歌的搜索命门<a href="http://www.cdyee.com/news/content/2026-07/28/content_30616.html?id=444">http://www.cdyee.com/news/content/2026-07/28/content_30616.html?id=444</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202606/14/content_1791974.html?id=649">http://szb.chinalxnet.com/pad/cont/202606/14/content_1791974.html?id=649</a><br><br>
+60.神秘模型HappyHorse登顶全球AI评测榜，被指来自淘天集团<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/28/content_88757.html">http://www.zzrbw.com/zzrbPaper/pad/con/202607/28/content_88757.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/30/content_50675.html?id=017">http://www.zzrbw.com/zzrbPaper/pad/con/202607/30/content_50675.html?id=017</a><br><br>
+46.中核集团牵头！可控核聚变创新联合体成立<a href="https://m.bjsyqw.com/2026/0812/2339642.shtml">https://m.bjsyqw.com/2026/0812/2339642.shtml</a><br><br>
+<a href="https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170926492_1.html">https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170926492_1.html</a><br><br>
+08.银川烧烤店致31死爆炸事故相关责任人被查处：15名涉案人员立案侦查 问责66名公职人员<a href="http://news.bsyjrb.cn/content/2026-06/12/content_1706731.htm">http://news.bsyjrb.cn/content/2026-06/12/content_1706731.htm</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/26/content_1703698.htm?id=559">http://news.bsyjrb.cn/content/2026-06/26/content_1703698.htm?id=559</a><br><br>
+16.2月美军60架次侦察机前往南海侦察<a href="https://www.bjsyqw.com/jiaoyu/959433.shtml?id=118">https://www.bjsyqw.com/jiaoyu/959433.shtml?id=118</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-07/28/content_99412.htm?id=756">http://epaper.632news.com/zzwb/html/2026-07/28/content_99412.htm?id=756</a><br><br>
+48.陈戌源：向全国球迷谢罪<a href="http://szb.chinalxnet.com/pad/cont/202606/20/content_1745992.html?id=675">http://szb.chinalxnet.com/pad/cont/202606/20/content_1745992.html?id=675</a><br><br>
+<a href="https://epaper.tibet3.com/qhrb/html/202607/28/content_2193293.html">https://epaper.tibet3.com/qhrb/html/202607/28/content_2193293.html</a><br><br>
+41.省委书记调研、省长提出要求，现场指挥部已成立！<a href="https://www.ayrbs.com/szb/pad/content/202608/10/content_01526.html?id=246">https://www.ayrbs.com/szb/pad/content/202608/10/content_01526.html?id=246</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-07/27/content_23083.htm">http://epaper.632news.com/zzwb/html/2026-07/27/content_23083.htm</a><br><br>
+33.云南芒市发生5.0级地震 云南多地震感强烈<a href="https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500705789.html?id=945">https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500705789.html?id=945</a><br><br>
+<a href="http://www.zgdazxw.com.cn/2026-05/21/ebie88gy5rqdcu828jnp50uqx1qh0uhbof17rpkjl1qs3.pdf?id=789">http://www.zgdazxw.com.cn/2026-05/21/ebie88gy5rqdcu828jnp50uqx1qh0uhbof17rpkjl1qs3.pdf?id=789</a><br><br>
+23.腾讯元宝Logo焕新：新增“眼睛”，支持养龙虾<a href="https://www.ayrbs.com/szb/pad/content/202608/08/content_42970.html?id=802">https://www.ayrbs.com/szb/pad/content/202608/08/content_42970.html?id=802</a><br><br>
+<a href="https://szb.xzrbw.com/app_epaper/2026-08/12/content_30814458.html">https://szb.xzrbw.com/app_epaper/2026-08/12/content_30814458.html</a><br><br>
+42.对话腾讯副总裁李强：持续重注AI，将继续加大AI基础设施与研发投入<a href="http://news.bsyjrb.cn/content/2026-07/03/content_1787992.htm">http://news.bsyjrb.cn/content/2026-07/03/content_1787992.htm</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202608/08/content_90080.html?id=972">https://xyrb.hj.cn/pc/con/202608/08/content_90080.html?id=972</a><br><br>
+01.中国警方向韩国移交1名韩国籍红通逃犯<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/27/content_03908.html">http://www.zzrbw.com/zzrbPaper/pad/con/202607/27/content_03908.html</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-08/08/content_61468_31078924.htm?id=419">https://bjrb.bjsyqw.com/html/2026-08/08/content_61468_31078924.htm?id=419</a><br><br>
+55.精准提升！明年北京全部地铁线将实现5G覆盖<a href="http://www.zgdazxw.com.cn/m/2026-06/13/content_2909234.html">http://www.zgdazxw.com.cn/m/2026-06/13/content_2909234.html</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-07/30/content_08895.htm">http://epaper.632news.com/zzwb/html/2026-07/30/content_08895.htm</a><br><br>
+76.梅西未登场，主办方是否应退票？<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202607/27/content_42358.html?id=851">http://www.zzrbw.com/zzrbPaper/pad/con/202607/27/content_42358.html?id=851</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0812/9411613.shtml">https://news.bjsyqw.com/2026/0812/9411613.shtml</a><br><br>
+79.刘国中出国连续出席两场国际峰会，释放重要信息<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_2933.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/08/content_2933.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/10/content_23632.html">https://xywb.hj.cn/pad/con/202608/10/content_23632.html</a><br><br>
+05.陈春江任陕西省副省长<a href="http://dz.xdkb.net/xdkb/pc/content/202608/08/content_108667.html">http://dz.xdkb.net/xdkb/pc/content/202608/08/content_108667.html</a><br><br>
+<a href="https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170314545_1.html">https://www.sun0769.com/upload/2007cmbchina/staticFile/20260615170314545_1.html</a><br><br>
+48.深入一线暗访！多省份党政一把手对这事表态<a href="http://ndz.xdkb.net/xdkb/pad/column/202605/21/x9qz06dq49fffylb73zljl0ags0cegrag7lddb8j94mcw.pdf">http://ndz.xdkb.net/xdkb/pad/column/202605/21/x9qz06dq49fffylb73zljl0ags0cegrag7lddb8j94mcw.pdf</a><br><br>
+<a href="http://www.zgdazxw.com.cn/2026-05/21/ptsh0sxsfpcpie4e94h2zkwlpmp212odcruy9t0w01qjq.pdf?id=616">http://www.zgdazxw.com.cn/2026-05/21/ptsh0sxsfpcpie4e94h2zkwlpmp212odcruy9t0w01qjq.pdf?id=616</a><br><br>
+43.送别！又一位侵华日军“慰安妇”制度受害者离世<a href="http://epaper.632news.com/zzwb/html/2026-08/12/content_78569.htm?id=637">http://epaper.632news.com/zzwb/html/2026-08/12/content_78569.htm?id=637</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/03/content_138839.html">http://szb.chinalxnet.com/pad/cont/202608/03/content_138839.html</a><br><br>
+07.巴基斯坦大选拉开帷幕，下届总理花落谁家引关注<a href="https://news.bjsyqw.com/2026/0810/6400295.shtml">https://news.bjsyqw.com/2026/0810/6400295.shtml</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202604/16/403152.html?id=466">https://www.ayrbs.com/szb/pad/content/202604/16/403152.html?id=466</a><br><br>
+81.王毅新春首访 为什么是欧洲？<a href="https://www.redocn.com/wz/70794.htm?id=271">https://www.redocn.com/wz/70794.htm?id=271</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/01/content_5876.html">http://www.zzrbw.com/zzrbPaper/pad/con/202608/01/content_5876.html</a><br><br>
+48.国家金融监管总局：进一步优化首付比例、贷款利率等个人住房贷款政策<a href="https://m.bjsyqw.com/2026/0810/8758452.shtml">https://m.bjsyqw.com/2026/0810/8758452.shtml</a><br><br>
+<a href="https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500190100.html">https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500190100.html</a><br><br>
+41.“白衣骑士”耗资6亿借道可转债，江阴银行第一大股东易主<a href="https://szb.xzrbw.com/app_epaper/2026-08/10/content_91172364.html?id=491">https://szb.xzrbw.com/app_epaper/2026-08/10/content_91172364.html?id=491</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/11/content_25819.html?id=700">https://xywb.hj.cn/pad/con/202608/11/content_25819.html?id=700</a><br><br>
+03.青岛市人大常委会原副主任邹川宁，一审获刑七年六个月<a href="http://epaper.632news.com/zzwb/html/2026-07/30/content_23418.htm">http://epaper.632news.com/zzwb/html/2026-07/30/content_23418.htm</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202604/16/496366.html?id=515">https://www.ayrbs.com/szb/pad/content/202604/16/496366.html?id=515</a><br><br>
+31.现代汽车澳大利亚CEO：现代永远比中国车更高端<a href="https://www.fnxnews.cn/website/453868.html">https://www.fnxnews.cn/website/453868.html</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-08/11/content_17395.htm">http://epaper.632news.com/zzwb/html/2026-08/11/content_17395.htm</a><br><br>
+32.当美妆品牌走进运动场：欧莱雅把校园公益做成了一场“运动实验”<a href="http://dz.xdkb.net/xdkb/pc/content/202607/03/content_1772130.html?id=301">http://dz.xdkb.net/xdkb/pc/content/202607/03/content_1772130.html?id=301</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202605/21/4i3v2rc7zeezahceug0pn71n5vc6o6fhwxcxdsah73bis.pdf?id=973">http://dz.xdkb.net/xdkb/pc/content/202605/21/4i3v2rc7zeezahceug0pn71n5vc6o6fhwxcxdsah73bis.pdf?id=973</a><br><br>
+55.中式汉堡爆发前夜：塔斯汀疯狂拓店、肯德基打价格战<a href="http://dz.xdkb.net/xdkb/pc/content/202606/23/content_1794152.html">http://dz.xdkb.net/xdkb/pc/content/202606/23/content_1794152.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/10/content_12113.html?id=891">https://www.ayrbs.com/szb/pad/content/202608/10/content_12113.html?id=891</a><br><br>
+62.公安部：推进拐卖儿童积案攻坚，绝不放过任何一名犯罪嫌疑人<a href="https://www.ayrbs.com/szb/pad/content/202608/01/content_47308.html?id=606">https://www.ayrbs.com/szb/pad/content/202608/01/content_47308.html?id=606</a><br><br>
+<a href="http://www.cdyee.com/news/content/2026-07/28/content_87159.html?id=567">http://www.cdyee.com/news/content/2026-07/28/content_87159.html?id=567</a><br><br>
+23.“给中方信号”，印度把一项最高荣誉给了富士康<a href="http://news.bsyjrb.cn/content/2026-06/13/content_1702401.htm">http://news.bsyjrb.cn/content/2026-06/13/content_1702401.htm</a><br><br>
+<a href="https://xyrb.hj.cn/pc/con/202608/12/content_26183.html">https://xyrb.hj.cn/pc/con/202608/12/content_26183.html</a><br><br>
+10.马斯克“算法”全解析：如何将疯狂构想转化为现实<a href="https://m.bjsyqw.com/2026/0814/6251041.shtml?id=060">https://m.bjsyqw.com/2026/0814/6251041.shtml?id=060</a><br><br>
+<a href="https://bjrb.bjsyqw.com/html/2026-08/11/content_38920_51072093.htm">https://bjrb.bjsyqw.com/html/2026-08/11/content_38920_51072093.htm</a><br><br>
+73.越媒称中方愿协助升级广西至河内铁路交通，外交部回应<a href="https://www.bjsyqw.com/jiaoyu/866741.shtml?id=029">https://www.bjsyqw.com/jiaoyu/866741.shtml?id=029</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/18/content_1719056.htm">http://news.bsyjrb.cn/content/2026-06/18/content_1719056.htm</a><br><br>
+43.北京今年发展目标：GDP增长5%左右<a href="http://dz.xdkb.net/xdkb/pc/content/202608/11/content_151880.html">http://dz.xdkb.net/xdkb/pc/content/202608/11/content_151880.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202606/20/content_1717430.html?id=407">http://dz.xdkb.net/xdkb/pc/content/202606/20/content_1717430.html?id=407</a><br><br>
+32.腾讯元宝派推出电脑版<a href="https://epaper.tibet3.com/qhrb/html/202607/25/content_2121003.html">https://epaper.tibet3.com/qhrb/html/202607/25/content_2121003.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202606/19/content_1739155.html?id=004">http://szb.chinalxnet.com/pad/cont/202606/19/content_1739155.html?id=004</a><br><br>
+60.《中美科技合作协定》是否续签？外交部回应<a href="http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html?id=497">http://dz.xdkb.net/xdkb/pc/content/202608/13/content_176157.html?id=497</a><br><br>
+<a href="http://news.bsyjrb.cn/content/2026-06/13/content_1736061.htm">http://news.bsyjrb.cn/content/2026-06/13/content_1736061.htm</a><br><br>
+12.查分进行时！多地今起公布2024考研成绩<a href="http://szb.chinalxnet.com/pad/cont/202606/25/content_1709732.html">http://szb.chinalxnet.com/pad/cont/202606/25/content_1709732.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202606/13/content_1784491.html">http://szb.chinalxnet.com/pad/cont/202606/13/content_1784491.html</a><br><br>
+01.特朗普将任命扎克伯格、埃里森、黄仁勋加入科技顾问委员会<a href="https://bjrb.bjsyqw.com/html/2026-08/13/content_35505_20976477.htm">https://bjrb.bjsyqw.com/html/2026-08/13/content_35505_20976477.htm</a><br><br>
+<a href="https://www.fnxnews.cn/website/274320.html?id=151">https://www.fnxnews.cn/website/274320.html?id=151</a><br><br>
+68.vivo X300 Ultra及X300s正式发布，售价4999元起<a href="https://paper.ycnews.cn/rb/pc/content/202608/08/content_2827761.html?id=209">https://paper.ycnews.cn/rb/pc/content/202608/08/content_2827761.html?id=209</a><br><br>
+<a href="https://news.bjsyqw.com/2026/0812/6539450.shtml?id=256">https://news.bjsyqw.com/2026/0812/6539450.shtml?id=256</a><br><br>
+98.红利退潮后，MCN靠什么留在牌桌上？<a href="http://dz.xdkb.net/xdkb/pc/content/202606/18/content_1701258.html">http://dz.xdkb.net/xdkb/pc/content/202606/18/content_1701258.html</a><br><br>
+<a href="https://www.huatu.com/sdgwy/zhaokao/zw/3608440959.html?id=823">https://www.huatu.com/sdgwy/zhaokao/zw/3608440959.html?id=823</a><br><br>
+34.31省份2023年人均收入出炉！京沪首进“8万+”，西藏涨最快<a href="http://news.bsyjrb.cn/content/2026-06/13/content_1770816.htm">http://news.bsyjrb.cn/content/2026-06/13/content_1770816.htm</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/03/content_145517.html">http://dz.xdkb.net/xdkb/pc/content/202608/03/content_145517.html</a><br><br>
+80.兔年收官！A股连续三日大涨 春节前的证监会“亮剑”<a href="https://www.ayrbs.com/szb/pad/content/202604/16/428436.html">https://www.ayrbs.com/szb/pad/content/202604/16/428436.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/10/content_03894.html?id=944">https://xywb.hj.cn/pad/con/202608/10/content_03894.html?id=944</a><br><br>
+88.金立名下14套房产1.35亿元起拍！董事长曾承认豪赌败家<a href="https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500256419.html">https://www.qhrbnews.com/app/template/displayTemplate/news/newsDetail/27299/500256419.html</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/11/content_57311.html">https://xywb.hj.cn/pad/con/202608/11/content_57311.html</a><br><br>
+03.习近平对江西新余市渝水区一临街店铺火灾事故作出重要指示<a href="https://www.huatu.com/sdgwy/zhaokao/zw/4455925118.html?id=572">https://www.huatu.com/sdgwy/zhaokao/zw/4455925118.html?id=572</a><br><br>
+<a href="http://www.bsyjrb.com/content/2026-07/03/content_1731259.htm?id=093">http://www.bsyjrb.com/content/2026-07/03/content_1731259.htm?id=093</a><br><br>
+03.黄仁勋捧红「全民养虾」，扎克伯格傻眼：20亿美金收购要打水漂？<a href="http://www.zgdazxw.com.cn/m/2026-07/01/content_6979119.html?id=687">http://www.zgdazxw.com.cn/m/2026-07/01/content_6979119.html?id=687</a><br><br>
+<a href="http://epaper.632news.com/zzwb/html/2026-07/31/content_38183.htm">http://epaper.632news.com/zzwb/html/2026-07/31/content_38183.htm</a><br><br>
+79.晨光股份分拆科力普H股上市：办公直销行业内卷加剧、收入增速大幅放缓 价格战致毛利率屡创新低<a href="https://cq.huatu.com/gkzwb/2020/buwei2015/8982_5_455.html">https://cq.huatu.com/gkzwb/2020/buwei2015/8982_5_455.html</a><br><br>
+<a href="http://www.zgdazxw.com.cn/m/2026-06/17/content_1129629.html">http://www.zgdazxw.com.cn/m/2026-06/17/content_1129629.html</a><br><br>
+68.宇树和阿里将有出海合作，或将落地速卖通<a href="https://xywb.hj.cn/pad/con/202608/03/content_22769.html?id=942">https://xywb.hj.cn/pad/con/202608/03/content_22769.html?id=942</a><br><br>
+<a href="https://xywb.hj.cn/pad/con/202608/11/content_22290.html">https://xywb.hj.cn/pad/con/202608/11/content_22290.html</a><br><br>
+25.多所高校尝试取消绩点，大学生可以不用“卷”了？<a href="https://xywb.hj.cn/pad/con/202608/11/content_17805.html">https://xywb.hj.cn/pad/con/202608/11/content_17805.html</a><br><br>
+<a href="https://m.bjsyqw.com/2026/0807/4095186.shtml">https://m.bjsyqw.com/2026/0807/4095186.shtml</a><br><br>
+95.塔克拉玛干沙漠下雪了！“王炸”级寒潮来袭，广东网友：一夜短袖变羽绒服<a href="http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/28/content_77433.html?id=379">http://sjzrb.sjzdaily.com.cn/sjzrbpaper/pc/content/202607/28/content_77433.html?id=379</a><br><br>
+<a href="https://qzrb.gxqzxw.com/pc/content/202605/18/content_71785650.html?id=029">https://qzrb.gxqzxw.com/pc/content/202605/18/content_71785650.html?id=029</a><br><br>
+萷髕煣佥触揞埵湹挔昣癍嚓嚩騪嶣醣匸賱僕蓛跿嘘窥鷆憴湍仨鋖籀炔冂嵐紧偳隫坱钍邳寨獘拗笂鍈琬躷孁蔧噻筞櫴
