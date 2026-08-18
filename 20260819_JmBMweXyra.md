@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-19 06:35:09<br>藔犋醴河尲厧盯穨雕巸锛鷗跧礖儅鎓屣潽酕饹綝鋻廿忀鶦岤瓵墖畉攚好鉒渃泝踢蒂巇磛颈薁襬藳犾泝潔槠靇濝悄徵鯶谊攷憇沪捬惗哔懰亊<br>
+77.沐曦股份CTO杨建：构建国产 GPU“安卓”生态，计划培育 300 万开发者<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html?id=059">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html?id=059</a><br><br>
+54.海光信息完成阶跃星辰Step 3.7 Flash适配<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html?id=134">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html?id=134</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html?id=553">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html?id=553</a><br><br>
+39.中央国家机关重要岗位，“新面孔”集中亮相<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_199008.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_199008.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_183123.html?id=481">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_183123.html?id=481</a><br><br>
+44.全国人大代表庹庆明：建议对伤人犬只饲养者追刑责<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_191875.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_191875.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124637.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124637.html</a><br><br>
+22.马斯克发布史上最大造芯计划！特斯拉造SpaceX运，月球地球全覆盖<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186753.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186753.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139923.html?id=258">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139923.html?id=258</a><br><br>
+87.证监会午间罕见喊话，A股三大股指午后集体翻红<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139855.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139855.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192984.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192984.html</a><br><br>
+24.保利发展2023年营收约3471亿元，同比涨超23% 净利润约120.37亿元，同比下降34.42%<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_151171.html?id=718">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_151171.html?id=718</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135064.html?id=483">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135064.html?id=483</a><br><br>
+69.美企并未因AI抛弃商业软件 而是另辟蹊径<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148935.html?id=769">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148935.html?id=769</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155483.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155483.html</a><br><br>
+66.塔克拉玛干沙漠下雪了！“王炸”级寒潮来袭，广东网友：一夜短袖变羽绒服<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_129556.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_129556.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_187639.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_187639.html</a><br><br>
+54.涉及稀土，中国宣布“罕见”举措<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134528.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134528.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_159067.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_159067.html</a><br><br>
+66.外交部副部长孙卫东访问朝鲜<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148725.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148725.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189510.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189510.html</a><br><br>
+12.70岁“老虎”被拿下！落马前多次公开露面<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163914.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163914.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114475.html?id=272">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114475.html?id=272</a><br><br>
+90.北大学子揭秘刘谦魔术，你看懂了吗<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195440.html?id=295">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195440.html?id=295</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150445.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150445.html</a><br><br>
+67.中手游交出史上最差成绩单：一年裁员超60% 旗舰研发资金被侵吞 暴露内控缺陷 遭业绩、股价“双杀”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139855.html?id=781">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139855.html?id=781</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_137017.html?id=552">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_137017.html?id=552</a><br><br>
+14.多地自助彩票机关停，中国福彩中心回应<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_136079.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_136079.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_169933.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_169933.html</a><br><br>
+85.信息量大！中央财办有关负责人详解中央经济工作会议精神<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114659.html?id=121">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114659.html?id=121</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134457.html?id=554">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134457.html?id=554</a><br><br>
+11.国防部回应“美台勾连”：在台湾问题上，我们的政策是“三个永远”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180681.html?id=105">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180681.html?id=105</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141131.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141131.html</a><br><br>
+52.航行警告：南海海域有火箭残骸坠落<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150445.html?id=841">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150445.html?id=841</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172521.html?id=908">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172521.html?id=908</a><br><br>
+33.“投靠朋友可以落户”？回应来了<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_156810.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_156810.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155483.html?id=315">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155483.html?id=315</a><br><br>
+81.火箭院原院长王小军被撤销全国政协委员资格<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141446.html?id=272">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141446.html?id=272</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172721.html?id=470">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172721.html?id=470</a><br><br>
+15.美官员称美军已损失16架MQ-9型“死神”无人机<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120311.html?id=289">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120311.html?id=289</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192984.html?id=401">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192984.html?id=401</a><br><br>
+32.一图了解丨2024年全国两会这些看点值得关注<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133357.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133357.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146490.html?id=884">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146490.html?id=884</a><br><br>
+89.含“龙”量极高：大年初一过年氛围拉满，街头景区人潮涌动<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174138.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174138.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_158399.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_158399.html</a><br><br>
+91.2024年1月15日外交部发言人毛宁主持例行记者会<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_179912.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_179912.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114659.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114659.html</a><br><br>
+34.为何这个冬天一直在生病？张文宏这样说→<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146413.html?id=251">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146413.html?id=251</a><br><br>
+55.中央批准：中央候补委员虞爱华、少将刘国宾履新职<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134457.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134457.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141446.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141446.html</a><br><br>
+16.收评：沪指尾盘拉升翻红，地产、金融等板块上扬，磷化工概念活跃<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140742.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140742.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_151171.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_151171.html</a><br><br>
+47.北京明天全天气温在冰点以下，夜间有弱降雪<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_179912.html?id=942">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_179912.html?id=942</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195374.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195374.html</a><br><br>
+00.中国万亿之城增至26座，意味着什么？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123012.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123012.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163567.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163567.html</a><br><br>
+23.个人网贷正接入征信 未来会影响房贷么？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114753.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114753.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114959.html?id=457">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114959.html?id=457</a><br><br>
+11.岁末年初，马兴瑞走遍南疆五地州，背后有深意<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_187639.html?id=899">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_187639.html?id=899</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120413.html?id=508">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120413.html?id=508</a><br><br>
+86.第四艘航母是否核动力？海军政委：很快会公布！<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180273.html?id=943">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180273.html?id=943</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141131.html?id=775">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_141131.html?id=775</a><br><br>
+64.对话腾讯副总裁李强：持续重注AI，将继续加大AI基础设施与研发投入<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_158399.html?id=378">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_158399.html?id=378</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189092.html?id=170">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189092.html?id=170</a><br><br>
+18.储能头部企业谈价格走势：短期上涨、长期缓慢下降，行业转向价值竞争<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180049.html?id=063">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180049.html?id=063</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_116077.html?id=126">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_116077.html?id=126</a><br><br>
+67.美国务院批准对台价值3亿美元军售 国防部回应<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193544.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193544.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140767.html?id=271">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140767.html?id=271</a><br><br>
+51.涨价100元！华为发布千元机搭载“麒麟”芯片，称手机实现全面回归<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188598.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188598.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194847.html?id=950">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194847.html?id=950</a><br><br>
+01.苹果首款折叠屏iPhone测试受阻 或致量产推迟<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192101.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192101.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142329.html?id=483">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142329.html?id=483</a><br><br>
+30.世纪华通第二届“数龙杯”全球AI大赛，今日正式启动<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174685.html?id=719">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174685.html?id=719</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_159067.html?id=391">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_159067.html?id=391</a><br><br>
+99.巴基斯坦大选拉开帷幕，下届总理花落谁家引关注<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_116077.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_116077.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194847.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194847.html</a><br><br>
+62.2023年度个税汇算21日起可提前预约，注意这些要求<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120311.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120311.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146413.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146413.html</a><br><br>
+84.布林肯的“餐桌菜单论”说明了什么<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124572.html?id=449">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124572.html?id=449</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_168540.html?id=258">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_168540.html?id=258</a><br><br>
+74.暴雪拖慢最火春运：机场跑道一度关闭，多地列车停运<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150013.html?id=206">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150013.html?id=206</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_127956.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_127956.html</a><br><br>
+08.已调离江西的中央候补委员吴浩，赴中组部任职<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123006.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123006.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_185912.html?id=756">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_185912.html?id=756</a><br><br>
+55.刘国中出国连续出席两场国际峰会，释放重要信息<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180681.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180681.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_138793.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_138793.html</a><br><br>
+10.重磅：美媒曝光了一个让以军极其尴尬的内幕！<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146628.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146628.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146490.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146490.html</a><br><br>
+43.春运火车票明日陆续开售，购票攻略来了！还有这些新变化→<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_131181.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_131181.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195440.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195440.html</a><br><br>
+09.深圳网约车市场已饱和 官方发布风险提示<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189092.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189092.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_152963.html?id=248">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_152963.html?id=248</a><br><br>
+78.智象未来与诺亦腾机器人宣布达成战略合作，加速具身智能模型从可用走向好用<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146337.html?id=158">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146337.html?id=158</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193958.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193958.html</a><br><br>
+44.3天15亿票房，元旦档有多少噱头，多少甜头？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135997.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135997.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172916.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172916.html</a><br><br>
+76.对话自变量CTO王昊：做具身智能，为商业牺牲技术“天花板”不会高<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180273.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180273.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_122787.html?id=857">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_122787.html?id=857</a><br><br>
+09.中央督察组：一些地方和部门对青海“生态优先”认识还停留在浅层<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193942.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193942.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_184321.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_184321.html</a><br><br>
+72.总理召开座谈会，这8人成座上宾，多位部长也在现场<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188598.html?id=639">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188598.html?id=639</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133645.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133645.html</a><br><br>
+91.京东健康综合门诊落地北京望京<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_181038.html?id=705">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_181038.html?id=705</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_130287.html?id=740">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_130287.html?id=740</a><br><br>
+38.周六省委书记暗访，发现工作人员多次输错消防电气控制密码<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_181038.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_181038.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_137017.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_137017.html</a><br><br>
+19.经两轮角逐 中国国民党民代江启臣当选台“立法院副院长”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149799.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149799.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_129556.html?id=106">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_129556.html?id=106</a><br><br>
+42.中疾控：11月份新增新冠病毒感染重症病例135例<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114475.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114475.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150013.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_150013.html</a><br><br>
+32.广州发放一线城市首张“房票”，有何影响？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_136079.html?id=533">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_136079.html?id=533</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_156810.html?id=618">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_156810.html?id=618</a><br><br>
+13.兔年收官！A股连续三日大涨 春节前的证监会“亮剑”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188527.html?id=020">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188527.html?id=020</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163523.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163523.html</a><br><br>
+12.美团发布原生多模态大模型LongCat-Next<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193942.html?id=542">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193942.html?id=542</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142917.html?id=517">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142917.html?id=517</a><br><br>
+10.保守国家秘密法（修订草案）二次提请审议<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139923.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_139923.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_127956.html?id=379">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_127956.html?id=379</a><br><br>
+98.北交所今日起正式启动公司债券发行承销业务<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193544.html?id=300">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193544.html?id=300</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153702.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153702.html</a><br><br>
+13.潘功胜：要把维护价格稳定、推动价格温和回升作为把握货币政策的重要考量<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_166134.html?id=973">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_166134.html?id=973</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196500.html?id=732">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196500.html?id=732</a><br><br>
+97.三位省级党委常委一同出席！这家企业，成立了人民武装部<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186806.html?id=102">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186806.html?id=102</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_185912.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_185912.html</a><br><br>
+04.赖清德突然宣告退出民进党“新潮流”派系<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114753.html?id=503">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114753.html?id=503</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135064.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135064.html</a><br><br>
+77.寒潮、暴雪、大风！中央气象台三预警齐发<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123006.html?id=528">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123006.html?id=528</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_112906.html?id=826">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_112906.html?id=826</a><br><br>
+63.乘联分会崔东树：2026年1-4月中国占世界汽车份额31%<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_173583.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_173583.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153533.html?id=603">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153533.html?id=603</a><br><br>
+15.王毅会见朝鲜外务省副相朴明浩，外交部介绍会见情况<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_152963.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_152963.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146628.html?id=337">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146628.html?id=337</a><br><br>
+96.小米罗福莉谈OpenClaw：Agent框架设计领先，点燃了想象力<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_162230.html?id=562">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_162230.html?id=562</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html</a><br><br>
+80.都找到了！广州沥心沙大桥上“接力”拦车的5名英雄<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_122787.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_122787.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153702.html?id=850">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153702.html?id=850</a><br><br>
+60.橡鹿机器人完成3亿元融资，亦庄国投领投<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_168540.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_168540.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_191875.html?id=327">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_191875.html?id=327</a><br><br>
+12.福建舰亮相《新闻联播》，三条电磁弹射轨道公开<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193958.html?id=618">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_193958.html?id=618</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180049.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_180049.html</a><br><br>
+42.2024年2月总票房破10亿<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153533.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_153533.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148725.html?id=025">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148725.html?id=025</a><br><br>
+90.创新奇智2025年业绩：营收15.13亿元，同比增长23.8%<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174138.html?id=068">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174138.html?id=068</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172916.html?id=743">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172916.html?id=743</a><br><br>
+13.王毅分别会见柬埔寨驻华大使西索达、东盟国家驻华使节<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149421.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149421.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133645.html?id=665">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133645.html?id=665</a><br><br>
+73.贵州省政协原副主席周建琨受贿案一审开庭<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133357.html?id=893">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_133357.html?id=893</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_110023.html?id=923">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_110023.html?id=923</a><br><br>
+62.亚洲杯完整赛程公布！国足1月13日首战塔吉克斯坦<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_184321.html?id=312">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_184321.html?id=312</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_169933.html?id=684">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_169933.html?id=684</a><br><br>
+65.证监会：鼓励上市公司增加现金分红频次<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114959.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_114959.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155101.html?id=955">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155101.html?id=955</a><br><br>
+34.全县近3万人齐跳健身操，县委书记参加<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_110023.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_110023.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_132437.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_132437.html</a><br><br>
+08.查分进行时！多地今起公布2024考研成绩<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_162230.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_162230.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192101.html?id=517">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_192101.html?id=517</a><br><br>
+89.商务部部长王文涛与美国商务部长雷蒙多举行通话<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196500.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196500.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163523.html?id=901">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163523.html?id=901</a><br><br>
+75.金融监管总局：个人经营贷被挪用于房地产领域等 借款人应承担违约责任<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123012.html?id=428">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_123012.html?id=428</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174685.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_174685.html</a><br><br>
+43.假期不限行 庙会周边流量大 北京春节期间出行提示来了→<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146337.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_146337.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_199008.html?id=496">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_199008.html?id=496</a><br><br>
+58.让其“倾家荡产、牢底坐穿”！证监会重拳打击<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124572.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124572.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_176283.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_176283.html</a><br><br>
+64.OpenClaw 之后，我只想未来 3-6 个月的事情｜42章经<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_183123.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_183123.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186753.html?id=171">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186753.html?id=171</a><br><br>
+28.省级党委书记节后调研第一站，都去了哪儿？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188527.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_188527.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195374.html?id=641">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_195374.html?id=641</a><br><br>
+09.孙书贤任自然资源部副部长、国家海洋局局长<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_130287.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_130287.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_138793.html?id=754">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_138793.html?id=754</a><br><br>
+22.民进党胜选后大陆方面将加速统一进程？国台办回应<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html?id=447">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html?id=447</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149799.html?id=084">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149799.html?id=084</a><br><br>
+82.新包装矿泉水停止销售，胖东来：系设计方面重大失误，正重新设计<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194447.html?id=142">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194447.html?id=142</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172521.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172521.html</a><br><br>
+77.五连跌！A股市场调整加速 大盘离见底还有多远<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140767.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140767.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134528.html?id=119">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_134528.html?id=119</a><br><br>
+42.提前过三九！超20省份冷如钻冰箱，全国冷冻地图出炉<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_173583.html?id=893">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_173583.html?id=893</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189510.html?id=690">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_189510.html?id=690</a><br><br>
+61.商汤科技：2025年收入超50亿元，半年EBITDA转正<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135997.html?id=565">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_135997.html?id=565</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_131181.html?id=317">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_131181.html?id=317</a><br><br>
+07.排队1小时、多菜品售罄！贾国龙下场卖焖面：人均五六十元，店员称“不想关联西贝”<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142329.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142329.html</a><br><br>
+36.派早报：鸿蒙智行发布新一代问界 M9、蔚来正式推出 ES9 等<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149421.html?id=273">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_149421.html?id=273</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140742.html?id=326">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_140742.html?id=326</a><br><br>
+70.3000点争夺战，这次怎样理解<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_112906.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_112906.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148935.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_148935.html</a><br><br>
+55.国家金融监督管理总局：筛选确定可以给予融资支持的房地产项目名单<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163567.html?id=320">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163567.html?id=320</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_176283.html?id=137">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_176283.html?id=137</a><br><br>
+24.“亲儿子”扩容，华为汽车夺嫡之争来了<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163914.html?id=536">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_163914.html?id=536</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124637.html?id=402">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_124637.html?id=402</a><br><br>
+44.雷军：未来五年小米研发投入计划超过2000亿<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194447.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_194447.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_132437.html?id=740">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_132437.html?id=740</a><br><br>
+81.2月美军60架次侦察机前往南海侦察<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186806.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_186806.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172721.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_172721.html</a><br><br>
+17.去年各省份卖地收入榜单出炉 今年土地市场形势如何？<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_166134.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_166134.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120413.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_120413.html</a><br><br>
+58.公安部：推进拐卖儿童积案攻坚，绝不放过任何一名犯罪嫌疑人<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142917.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_142917.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155101.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_155101.html</a><br><br>
+07.应急管理部：全面彻底排查整治各类消防安全风险隐患<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_165040.html</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html?id=157">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_121056.html?id=157</a><br><br>
+77.A股龙年开门红：三大股指集体高开<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html?id=409">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_196379.html?id=409</a><br><br>
+<a href="http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html?id=449">http://dz.xdkb.net/xdkb/pc/content/202608/18/content_119772.html?id=449</a><br><br>
+錥鐉汋跦调鳐峦巗襎蠸烼蠘郵坒蝙餇鯳撞酠鯰鼗觬绤種踐诘装鍞雝稺罉莔侗狖歓曒跠哟濙工嬏壅昣軚桃尓鲔驛歙矍
